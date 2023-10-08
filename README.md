@@ -1,7 +1,7 @@
 
 
 
-https://github.com/AIPitton/SpaceBNB/assets/66978272/00cfecca-21be-418d-9572-2faed1693395
+https://github.com/AIPitton/SpaceBNB/assets/66978272/f01093bb-e19b-4f07-8f2a-ff880cb43cd0
 
 
 # Getting Started
